@@ -1,4 +1,4 @@
-## Ignis Reges
+## About Us
 
 <!--
 
